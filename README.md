@@ -15,8 +15,8 @@
 - Algorithm-based challenges or hackathons.
 
 ### 📫 How to reach me:
-- **LinkedIn**: [Aditya Mishra](https://linkedin.com/in/adityamishra07)  
-- **Email**: adityamishra07@example.com  
+- **LinkedIn**: [Aditya Mishra](https://www.linkedin.com/in/aditya-mishra-07aug2005/)  
+- **Email**: 07adityamishra@gmail.com  
 
 ### 😄 Pronouns:
 - He/Him  
